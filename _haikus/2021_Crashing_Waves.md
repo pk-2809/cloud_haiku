@@ -6,4 +6,4 @@ author: CyanGirl
 
 Waves crashed against shore. <br>
 I sat there watching alone, <br>
-Losing myself more. <br>
+Not Losing myself more. <br>
